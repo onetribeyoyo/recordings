@@ -1,4 +1,6 @@
-# Archival Recordings from Class of '82, St. Charles, Illinois #
+# Archival Recordings from St. Charles, Illinois Class of '82 #
+
+------
 
 ## Reggie Roots with Aster Black (and Squeaky) ##
 
@@ -11,6 +13,7 @@ Circa 1980.
 Audio quality is pretty poor, could be in part from the original show... it was low-fi!  All
 things considered, this is pretty good for a 30 year old "Intermagnetics" cassette tape.
 
+------
 
 ## Azgaard at Thompson Junior High ##
 
@@ -22,6 +25,7 @@ Was this their first gig?
 
 Sounds like it was recorded in a gym?  Yep, it was recorded in a gym.
 
+------
 
 ## Abortions Live at Punkfest ##
 
@@ -31,8 +35,9 @@ Sounds like it was recorded in a gym?  Yep, it was recorded in a gym.
 
 Circa 1980.
 
-I don't know what to say.... enjoy!
+I don't know what to say.... enjoy?
 
+------
 
 ## Azgaard ##
 
@@ -41,3 +46,5 @@ I don't know what to say.... enjoy!
 </audio>
 
 Anyone recall where/when this show happened?
+
+------
