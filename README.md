@@ -2,10 +2,10 @@
 
 ------
 
-## Reggie Roots with Aster Black (and Squeaky) ##
+## Reggae Roots with Aster Black (and Squeaky) ##
 
 <audio controls>
-  <source src="reggie-roots.mp3" />
+  <source src="reggae-roots.mp3" />
 </audio>
 
 Circa 1980.
