@@ -25,6 +25,17 @@ Was this their first gig?
 
 Sounds like it was recorded in a gym?  Yep, it was recorded in a gym.
 
+1. Hello There
+2. Journey to Aazgaard (sic)
+3. Two Tickets to Paradise
+4. Come Together
+5. Love Is All Around
+6. China Grove
+7. Time Warp
+8. Iron Man
+9. Mr. Rock And Roll
+10. Beth
+
 ------
 
 ## Abortions Live at Punkfest ##
@@ -52,7 +63,7 @@ Anyone recall where/when this show happened?
 Todd and Eddie are jammin together in their preferred version of heaven.
 
 1. Natalie
-2. "Eruption / Running with the Devil" (~3:30)
+2. Eruption / Running With The Devil (~3:30)
 3. Mary Jane
 4. Rock Jam
 5. Keep on Loving You
@@ -61,7 +72,7 @@ Todd and Eddie are jammin together in their preferred version of heaven.
 8. Dirty Deeds
 9. Whole Lotta Rosie
 10. Let It Show
-11. Spirit of the Radio
+11. Spirit of The Radio
 12. Good Night Now
   
 ------
